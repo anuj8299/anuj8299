@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **anuj.yadav.careers@gmail.com**
 
-- 📄 Know about my experiences [Resume](cv-anuj-yadav.tiiny.site)
+- 📄 Know about my experiences [Resume](https://cv-anuj-yadav.tiiny.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
